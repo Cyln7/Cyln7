@@ -14,7 +14,7 @@
  #### 2. [SMA Katolik Xaverius Padang](https://www.prayogapadang.or.id/?page_id=378) | MIPA | Padang `2021-202`
 
 ## Organizational Experience:
-#### 1. UKF Futsal | Fakultas | `2024-Sekarang`
+#### 1. UKF Futsal | Fakultas | 2024-Sekarang
    - Starting V
    - Core Player
 #### 2. Pengenalan Kehidupan Kampus bagi Mahasiswa Baru (PKKMB) | Universitas | 2024 dan 2025
