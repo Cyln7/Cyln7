@@ -11,15 +11,11 @@
 
 #### 1. [Universitas Atma Jaya Yogyakarta](https://www.uajy.ac.id) | Industrial Engineering Student | Yogyakarta `2023-Sekarang`
    - Asistant Laboratorium of Basic Programming
+   - Asistant Laboratorium of Applied Programming
  #### 2. [SMA Katolik Xaverius Padang](https://www.prayogapadang.or.id/?page_id=378) | MIPA | Padang `2021-2023`
 
 ## Organizational Experience:
-#### 1. UKF Futsal | Fakultas | 2024-Sekarang
-   - Starting V
-   - Core Player
-#### 2. Pengenalan Kehidupan Kampus bagi Mahasiswa Baru (PKKMB) | Universitas | 2024 dan 2025
-   - Sie Keamanan
-#### 3. Atma Jaya Movement | Komunitas | 2023-2024
+#### 1. Atma Jaya Movement | Komunitas | 2023-2024
    - Coordinator of the Cadre Division
 ---
 
